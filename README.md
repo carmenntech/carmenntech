@@ -1,1 +1,2 @@
-![Copia de Banner de Linkedin Moderno para Arquitecto Azul y Blanco (4)](https://github.com/user-attachments/assets/174fa461-d64a-41fa-810a-c6c86db7cbff)
+
+![gif-presentacion](https://github.com/user-attachments/assets/f1b2e60b-2875-49ff-86ad-b0a451ac6876)
